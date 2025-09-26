@@ -70,7 +70,7 @@ Currently expanding knowledge in:
 - 💼 **LinkedIn**: [adoniscastellanos](https://www.linkedin.com/in/adoniscastellanos/)
 - 📧 **Email**: adoniscastellanos1@gmail.com
 - 🌍 **Location**: Buenos Aires, Argentina
-- 💬 **Languages**: Spanish (Native) • English (Intermediate)
+- 💬 **Languages**: Spanish (Native) • English (A2-B1)
 
 ---
 
